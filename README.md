@@ -1,0 +1,56 @@
+# Penthouse – 隣の恋は青
+
+> **歌詞登録ステータス：プレーン歌詞のみ**
+
+```
+"A message has arrived."
+はやる鼓動はどっちに?
+一人きりのDriver's seat
+隠したって意味がない(need no lie)
+The devil on my shoulder 半笑い
+「脇道もいいんじゃない?」
+信号も青じゃ止まんない
+ハイウェイだって厭わない
+衝動だけ Bring it on! Bring it on!
+ほら約束など I don't care! I don't care!
+"昨日の恋は 今日の恋じゃない"
+アクセル踏みつけ
+愛は綺麗でCrazy この手に負えない
+効きやしないねブレーキ いつも視界にAnother love
+永遠にCrazy 諦められない
+だから "Someday my prince will come"
+身勝手に夢見る
+描いてく"You and Me"
+"Love is still alive"
+未練面したヒストリー
+繕ったAnniversary
+走馬灯にもならない(not a chance)
+The devil on my shoulder 半笑い
+「忘れてもいいんじゃない?」
+別れの理論武装より
+高鳴る方へ急がない?
+渇望せよ One more time! One more time!
+ほら満足などStay away! Stay away!
+"明日の恋も 今日の恋じゃない"
+アクセル踏みつけ
+愛は綺麗でCrazy この手で触れたい
+尽きぬ出逢いのイメージ またも視界にAnother love
+冷静で Crazy 満ち足りはしない
+だから "Someday my prince will come"
+身勝手に夢見る
+Baby, I've wanted to be
+The one who dies with you
+叶わない願いじゃない
+それでも青い芝に賭けたいから
+"昨日の恋は今日の恋じゃない!"
+アクセル踏みつけ メーター振り切れ
+愛の最果てへ
+愛は綺麗でCrazy この手に負えない
+効きやしないねブレーキ いつも願うのGive me your
+love
+永遠に Crazy 諦められない
+だから "Someday my prince will come"
+身勝手に夢見る
+描いてく"You and Me"
+いつか燃え尽きても
+```
